@@ -1,0 +1,1 @@
+- 👋 Hi, esse bagulçho é chato.
